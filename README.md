@@ -2,7 +2,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://i.ibb.co/BVyxT13N/IMG-5860.gif" alt="IMG 5860" border="0">
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://i.ibb.co/xqYK31pb/IMG-5876.gif" alt="IMG 5876" border="0">
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ren hana fictkin. btd + purpleverse/frostbite antis dni and go outside please
-
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀also dni if you cannot differentiate reality from fiction y'all are losers LOL (looking at you BTD antis)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://i.ibb.co/1G2v9MK7/IMG-7032.gif" alt="IMG 7032" border="0"> <img src="https://i.ibb.co/BKwrnThK/IMG-7033.gif" alt="IMG 7033" border="0"> <img src="https://i.ibb.co/HptHfDrF/IMG-7037.gif" alt="IMG 7037" border="0"> <img src="https://i.ibb.co/WNtHWZf5/IMG-7034.gif" alt="IMG 7034" border="0">
