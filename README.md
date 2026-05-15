@@ -1,4 +1,4 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&duration=4000&pause=200&color=A94836&width=435&lines=%22+%F0%9D%99%82%F0%9D%99%A4%F0%9D%99%9E%F0%9D%99%A3%F0%9D%99%9C+%F0%9D%99%A4%F0%9D%99%A3%F0%9D%99%98%F0%9D%99%9A%2C+%F0%9D%99%82%F0%9D%99%A4%F0%9D%99%9E%F0%9D%99%A3%F0%9D%99%9C+%F0%9D%99%A9%F0%9D%99%AC%F0%9D%99%9E%F0%9D%99%98%F0%9D%99%9A+!;%F0%9D%99%80%F0%9D%99%AB%F0%9D%99%9A%F0%9D%99%A7%F0%9D%99%AE+%F0%9D%99%88%F0%9D%99%96%F0%9D%99%A3+%F0%9D%99%83%F0%9D%99%9A%F0%9D%99%A7%F0%9D%99%9A+%F0%9D%99%83%F0%9D%99%96%F0%9D%99%A8+%F0%9D%98%BC+%F0%9D%99%8B%F0%9D%99%A7%F0%9D%99%9E%F0%9D%99%98%F0%9D%99%9A+!+%22)](https://git.io/typing-svg)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="500" height="500" alt="image" src="[https://github.com/user-attachments/assets/6a982ac8-4046-4941-956a-b21d4d919ab5](https://i.ibb.co/BVyxT13N/IMG-5860.gif)" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="1049" height="350" alt="image" src="https://github.com/user-attachments/assets/d6afee3a-ef47-47b3-ae73-0254876a9471" />
 
